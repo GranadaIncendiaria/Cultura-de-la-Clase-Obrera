@@ -9,7 +9,9 @@ Recopilación de perfiles de artistas en cuya obra haya influido indudablemente 
 - Billy Brags
 - Woody Guthrie
 
-##### Artistas del Estado español
+###### Artistas del Estado español
+- Miguel Hernández
 - Rosendo
 - Barón Rojo
 - Dellafuente
+- Ayax&Prok
