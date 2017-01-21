@@ -8,10 +8,8 @@ Recopilación de perfiles de artistas en cuya obra haya influido indudablemente 
 - Paul Robeson
 - Billy Brags
 - Woody Guthrie
-- 
 
 ##### Artistas del Estado español
 - Rosendo
 - Barón Rojo
 - Dellafuente
-- 
