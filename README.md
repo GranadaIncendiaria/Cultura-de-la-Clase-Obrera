@@ -10,8 +10,12 @@ Recopilación de perfiles de artistas en cuya obra haya influido indudablemente 
 - Woody Guthrie
 
 ###### Artistas del Estado español
+- Gata Cattana
 - Miguel Hernández
 - Rosendo
 - Barón Rojo
 - Dellafuente
 - Ayax&Prok
+- victor Rutty, Rober del Pyro & DJ Kaef
+- Foyone
+- 
