@@ -17,5 +17,5 @@ Recopilación de perfiles de artistas en cuya obra haya influido indudablemente 
 - Dellafuente
 - Ayax&Prok
 - victor Rutty, Rober del Pyro & DJ Kaef
-- Foyone
+- [Foyone](https://www.youtube.com/watch?v=6X6hHgXrHWA)
 - 
