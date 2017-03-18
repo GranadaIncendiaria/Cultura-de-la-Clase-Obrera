@@ -8,6 +8,8 @@ Recopilación de perfiles de artistas en cuya obra haya influido indudablemente 
 - Paul Robeson
 - Billy Brags
 - Woody Guthrie
+- [Leone Jacovacci](http://www.eldiario.es/cultura/Leone-Jacovacci-historia-boxeador-Mussolini_0_623637691.html) - Boxeador
+
 
 ###### Artistas del Estado español
 - Gata Cattana
